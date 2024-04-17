@@ -1,0 +1,1 @@
+Progress assignment of the project on augmented reality
